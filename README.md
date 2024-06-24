@@ -21,7 +21,8 @@ My Experience :
    Thought which arsies in a natural flow state but thinking arises when we start to process out our thoughts and it leads to overthinking. To overcome this we should stop thinking and let our thinking 
    to settle down like a debris in a water. But how can this be helpful in selecting our goals and carrer? .  This can be created with help of our inspiration and despiration .Inspiration which comes from
    our heart but desperation comes from force and pressure.
+   
 Conclusion :
-To experience a peacefull and happiness we sholud follow our inner wisdom and trust our thoughts and make it happen with your optimistic behaviour .
+     To experience a peacefull and happiness we sholud follow our inner wisdom and trust our thoughts and make it happen with your optimistic behaviour .
 
    
